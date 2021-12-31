@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋, I'm Rafael Belo
 
 
 - 🔭 I’m currently searching for work ...
@@ -8,4 +8,4 @@
 - 💬 Ask me about anything.
 - 📫 How to reach me: @rafael_pa5 on tt
 - 😄 Pronouns: he
-- ⚡ Fun fact: I'm a pro league of legends player (no i'm not)
+- ⚡ Fun fact: I'm a pro league of legends player (no i'm not) 
